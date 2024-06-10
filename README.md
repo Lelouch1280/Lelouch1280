@@ -7,4 +7,6 @@
 
 - Junte-se a mim e eu lhe ajudarei.
 
+  > Escrito por Lelouch
+
 ![]( https://media1.tenor.com/m/y-eeKFRJsbYAAAAd/lelouch.gif)
